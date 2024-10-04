@@ -1,0 +1,1 @@
+# Kędziorkowo strona piękna przepiękna
